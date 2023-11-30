@@ -1,4 +1,4 @@
-Backup Account for [Chinasa T. Okolo](www.github.com/chinasatokolo)
+Backup Account for [Chinasa T. Okolo](https://github.com/chinasatokolo)
 
 <!---
 - 👋 Hi, I’m @chinasaokolo
